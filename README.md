@@ -3,10 +3,6 @@
 Youtube Playlist link:<br>
 
 <br>
-Google Collab Link (Questions + Ans):<br>
-
-<br>
-<br>
 <br>
 These links are for me to plan and record videos.
 <br>
