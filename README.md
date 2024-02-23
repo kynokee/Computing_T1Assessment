@@ -1,7 +1,7 @@
 # Computing_T1Assessment
 
-Youtube Playlist link:<br>
-
+Drive Playlist link:<br>
+https://drive.google.com/drive/folders/19BwbxcGVkW0UFFhlGb_M6_h_ObzvZhIO?usp=sharing
 <br>
 <br>
 These links are for me to plan and record videos.
